@@ -1,2 +1,0 @@
-# myownthaughts
-myownthaughts
